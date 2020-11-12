@@ -1,0 +1,1 @@
+Whisk the ingredients together. Grease a pan. Put the ingredients in a pan. Bake it in an oven for 60 minutes.
